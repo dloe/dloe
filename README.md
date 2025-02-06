@@ -24,7 +24,7 @@ Here are some ideas to get you started:
 
 ### Fun Facts
 - 🥁 Love music! Im a drummer, and used to be in a few punk bands in high school. Currently learning the double bass petal to start playing more metal music!
-- 🥾 Im a hiking enthusiast and love exploring nature trails. Im to explore more of california this year with my friends.
+- 🥾 Im a hiking enthusiast and love exploring nature trails. Im going to be exploring more of california this year with my friends.
 - 🏄 I live by the beach so now that Im done with school I will be getting back into surfing.
 - ⚽ I used to be a very avid soccer player and plan to start playuing more regularly with my high school friends.
 

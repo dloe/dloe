@@ -26,7 +26,7 @@ Here are some ideas to get you started:
 - 🥁 Love music! Im a drummer, and used to be in a few punk bands in high school. Currently learning the double bass petal to start playing more metal music!
 - 🥾 Im a hiking enthusiast and love exploring nature trails. Im going to be exploring more of california this year with my friends.
 - 🏄 I live by the beach so now that Im done with school I will be getting back into surfing.
-- ⚽ I used to be a very avid soccer player and plan to start playuing more regularly with my high school friends.
+- ⚽ I used to be a very avid soccer player and plan to start playing more regularly with my high school friends.
 
 ---
 Hope you enjoy your stay, and thank you for exploring my github profile. I'm passionate about game development and always eager to learn and grow. If you're interested in my work or would like to collaborate, feel free to explore my projects or explore my [Linkedin](www.linkedin.com/in/dylan-loe). Let's create something amazing together!
